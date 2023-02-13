@@ -1,4 +1,4 @@
-# ruturajdorlekar22
+# ruturajdorlekar
 
 # 💫 About Me:
 Hi, I'm Ruturaj Dorlekar
